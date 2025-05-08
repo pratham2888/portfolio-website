@@ -1,1 +1,1 @@
-Pratham Bhanushalis Personal Website
+Pratham Bhanushali's Personal Website
